@@ -1,1 +1,0 @@
-# adminsever.github.io
